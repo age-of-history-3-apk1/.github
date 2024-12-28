@@ -5,7 +5,7 @@
 
 **Age of History 3** es un emocionante juego de estrategia en tiempo real que pone a los jugadores al mando de una civilización. Te desafía a guiar tu imperio a través de la historia, tomando decisiones cruciales sobre tácticas militares, diplomacia y gestión de recursos. Desarrollado por Łukasz Jakowski, el juego te permite dar forma al curso de la historia, guiando a tu pueblo desde la antigüedad hasta la era moderna. Con más de 3,665 civilizaciones y una infinidad de escenarios, este juego ofrece una experiencia única de conquista mundial.
 
-> # Descarga aquí: 👉👉 https://heyapks.com/
+> # Descarga aquí: 👉👉 https://heyapks.com/age-of-history-3.html
 ![ảnh 2](https://github.com/user-attachments/assets/c1f8135c-fd93-4818-865b-76cfd5349546)
 
 ## Características principales de Age of History 3
